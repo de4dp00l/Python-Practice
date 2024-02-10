@@ -8,4 +8,4 @@
 Best Regards,
 
 **Seliando Marta Wijaya (Ando)**\
-[Linkedin](https://linkedin.com/in/seliandomw/) | [Email](seliandomw@gmail.com)
+[Linkedin](https://linkedin.com/in/seliandomw/)
